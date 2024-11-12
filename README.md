@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... java code
 - 💞️ I’m looking to collaborate on ... scratch :)  my user is ✨(dedfishy1)✨ 
 - 📫 How to reach me ...  dont.
-- 😄 Pronouns: ... ✨he/him/they/✨ 
+- 😄 Pronouns: ... ✨he/him/they✨ 
 - ⚡ Fun fact: ...  ✨i like eating dry wall✨
 
 <!---
